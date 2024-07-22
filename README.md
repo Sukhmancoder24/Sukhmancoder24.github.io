@@ -23,3 +23,4 @@
 | 18-07-2024 | seniours | They explain about excel and it's different functions like- count blank function, vlookup function, data validation, etc. Along with this, they explain about examination pattern. | 
 | 18-07-2024 | Dr.Harwinder Singh | He enlights us about our physical strength and explains about NCC including different achievements which his team got through their hard work. He explains about benefits of joining NCC.
 | 18-07-2024 | Dr. Jasvir Singh Grewal | He explains us about NSS including activities involve in this and their achievements. He awares us about different camp held by NSS like - blood camp , cleanliness camp , planting camp , etc. | 
+| 19-07-2024 | Er. Kanwardeep kalra | She motivates us for our journey. She explains about topic - campus to corporate, which include 6 C's: childhood, campus , college, career , corporate , compensation. |
