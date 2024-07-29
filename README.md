@@ -30,3 +30,11 @@
 | 22-07-2024 | Dr. Puspinder Singh | He encourages us to think amd talks in positive attitude and also sugarcoat negative talks. He defines the term- SWOT which include opportunity, threat, weakness, strength. He motivates us to grab every opportunity and remain positive and dead and dump negative thoughts amd talks. He recited story of tortoise and rabbit. Also gives moral of that story and motivates us to help others and learn from nature. | 
 | 22-07-2024 | ..... | He talks about different intiatives taken by students of different schools of india to save the nature and develop things to replace the things like air conditioners. Then ma'am talks about sustainable environment, where she explaines about harms which we are doing to nature amd harming others and ourselves amd creating our areas as trash. | 
 | 23-07-2024 | Jk | She taught chapter four- understanding harmony in the society and she gives many useful examples of 9 feelings. | 
+| 24-07-2024 | Mr.Gauravdeep Singh | He shared experience of his life and teach us to understand ourself and aware us about god's plan that he will never do anything wrong for u , he will always show us right path. | 
+| 24-07-2024 | Er.Lakhwir Singh | He made us aware about CML- Centred Multi-faceted Learning which include : Self and personality development , and MOOC or NPTEL. He told us about courses of nptel. 
+| 24-07-02024 | causmic club| Members of causmic club explained us about different activities held by this club and members of club. They showed glimpse of some activities of causmic club. | 
+| 25-07-2024 | Mr. Karan Bhalla | He taught us basics of chemistry.| 
+| 25-07-2024 | Mk | She held a group discussion of topics of four chapters, mainly on value education. | 
+| 25-06-2024 | MDK | Math test| 
+| 26-07-2024 | Dr.kanwalpreet kaur Bhatt | She explained about cosmic energy in our body which we get through meditation. We performed meditation for 15-20 minutes which close eyes,legs cross and hands locked. | 
+| 26-07-2024 | ..... | cultural activities held . | 
